@@ -7,4 +7,4 @@
 - Also check out my [Discord Server](https://discord.gg/nMMacuHR)
 
 This is the last pic i shot on my FZ-1000 II! Enjoy!
-![Munich](https://cdn.continuum-ai.de/image?id=2b0d878b0b999513659d18cf510bd5c0&ext=jpg)
+![Katze_Heißluftballons_Kappadokkien](https://user-images.githubusercontent.com/62291876/219940652-10434147-d25c-4906-93c3-d2bcf752ae54.jpg)
